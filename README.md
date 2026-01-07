@@ -1,5 +1,7 @@
-<img width="1000" height="1200" alt="Untitled115_20260105193934" src="https://github.com/user-attachments/assets/1e56553e-e641-4bcb-be91-6c399a709e73" />
-Chronically online
+<img width="800" height="1200" alt="Untitled115_20260105193934" src="https://github.com/user-attachments/assets/1e56553e-e641-4bcb-be91-6c399a709e73" />
+#1 ALMA LOVER!!
+I'm alma he is me....
+Go read Gokurakugai its so peak
 I'll add more later or something idk
 
 Alma, Beam, Shidou, Yuuji, Jabber
