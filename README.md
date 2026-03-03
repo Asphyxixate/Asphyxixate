@@ -16,5 +16,3 @@ Alma, Benji, Beam, Yoshida, Shidou, Yuuji, Jabber, Kaneki
 🔁 Translating
 
 "I support pedos, groomers, my parents are siblings, and long live the glorious Netanyahu"
-
-Im crine
