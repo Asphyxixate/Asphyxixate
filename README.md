@@ -7,10 +7,11 @@ Go read Gokurakugai its so peak
 I'll add more later or something idk
 
 Alma, Denji, Beam, Yoshida, Shidou, Yuuji, Jabber, Kaneki
-<img width="728.4" height="819.2" alt="Untitled120_20260106010024" src="https://github.com/user-attachments/assets/a100f316-f8c0-43a8-830b-1c2ee46d9ba5" />
 
 "Im a proshipper/darkshipper"
 
 🔁 Translating
 
 "I support pedos, groomers, my parents are siblings, and long live the glorious Netanyahu"
+<img width="728.4" height="819.2" alt="Untitled120_20260106010024" src="https://github.com/user-attachments/assets/a100f316-f8c0-43a8-830b-1c2ee46d9ba5" />
+
