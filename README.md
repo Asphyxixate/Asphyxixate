@@ -7,7 +7,7 @@ Go read Gokurakugai its so peak
 I'll add more later or something idk
 
 Alma, Denji, Beam, Yoshida, Shidou, Yuuji, Jabber, Kaneki
- 
+----------------------------------------------------------
 "Im a proshipper/darkshipper"
 
 🔁 Translating
