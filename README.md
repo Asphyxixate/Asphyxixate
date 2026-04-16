@@ -1,18 +1,20 @@
-<img width="736" height="461" alt="download (65)" src="https://github.com/user-attachments/assets/de900e1e-77d4-4c02-abf0-8a06bdbbeff6" />
+<img width="500" height="500" alt="ALMA__2_-removebg-preview" src="https://github.com/user-attachments/assets/88b0b52b-f1da-4e5b-baab-832ddcdf5dff" />\
+      <img width="497" height="39" alt="r013k2" src="https://github.com/user-attachments/assets/82bdd266-7030-449b-aceb-5ec704283ab6" />
+
+   - I love Yoshida Hirofumi
+
+   - Go read Gokurakugai its so peak
+
+   - Mimi Blegh
+
+   Alma, Denji, Beam, Yoshida, Shidou, Yuuji, Jabber, Kaneki\
+<img width="497" height="39" alt="7ca6td" src="https://github.com/user-attachments/assets/11cdca7d-75aa-48af-a74e-b16c5fb379ae" />
 
 
-I love Yoshida Hirofumi
- 
-Go read Gokurakugai its so peak
+   "Im a proshipper/darkshipper"
 
-I'll add more later or something idk
+   🔁 Translating
 
-Alma, Denji, Beam, Yoshida, Shidou, Yuuji, Jabber, Kaneki
-----------------------------------------------------------
-"Im a proshipper/darkshipper"
-
-🔁 Translating
-
-"I support pedos, groomers, my parents are siblings, and long live the glorious Netanyahu"
+   "I support pedos, groomers, my parents are siblings, and long live the glorious Netanyahu"
 <img width="728.4" height="819.2" alt="Untitled120_20260106010024" src="https://github.com/user-attachments/assets/a100f316-f8c0-43a8-830b-1c2ee46d9ba5" />
 
