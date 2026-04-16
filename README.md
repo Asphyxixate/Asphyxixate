@@ -16,6 +16,6 @@
 
 - "I support pedos, groomers, my parents are siblings, and long live the glorious Netanyahu"
 
-<img width="497" height="39" alt="7ca6td" src="https://github.com/user-attachments/assets/11cdca7d-75aa-48af-a74e-b16c5fb379ae" />
-<img width="728.4" height="819.2" alt="Untitled120_20260106010024" src="https://github.com/user-attachments/assets/a100f316-f8c0-43a8-830b-1c2ee46d9ba5" />
+<img width="497" height="39" alt="7ca6td" src="https://github.com/user-attachments/assets/11cdca7d-75aa-48af-a74e-b16c5fb379ae" />\
+<img width="486" height="546" alt="Untitled120_20260106010024" src="https://github.com/user-attachments/assets/a100f316-f8c0-43a8-830b-1c2ee46d9ba5" />
 
