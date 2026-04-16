@@ -1,11 +1,11 @@
 <img width="500" height="500" alt="ALMA__2_-removebg-preview" src="https://github.com/user-attachments/assets/88b0b52b-f1da-4e5b-baab-832ddcdf5dff" />\
 <img width="497" height="39" alt="r013k2" src="https://github.com/user-attachments/assets/82bdd266-7030-449b-aceb-5ec704283ab6" />
   
-   - I love Yoshida Hirofumi
+   ★ I love Yoshida Hirofumi                ★ I also love Alma
 
-   - Go read Gokurakugai its so peak
+   ★ Go read Gokurakugai its so peak        ★ I love Yuto Sano's art
 
-   - Mimi Blegh
+   ★ Mimi Blegh                           ★ [Caard](https://asphyxixate.carrd.co/) [ATA Book](https://ashpyxixate.atabook.org/)
 
 ## Alma, Denji, Beam, Yoshida, Shidou, Yuuji, Jabber, Kaneki
 
