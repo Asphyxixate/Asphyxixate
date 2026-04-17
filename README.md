@@ -7,7 +7,7 @@
 
    ★ Mimi Blegh                           ★ [Caard](https://asphyxixate.carrd.co/) [ATA Book](https://ashpyxixate.atabook.org/)
 
-## Alma, Denji, Beam, Yoshida, Shidou, Yuuji, Jabber, Kaneki
+## Alma, Denji, Beam, Shidou, Yuuji, Enjin, Hideyoshi Nagachika
 
 
 - "Im a proshipper/darkshipper"
