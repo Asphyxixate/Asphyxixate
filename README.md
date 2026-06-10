@@ -11,7 +11,7 @@
 
 <div align="center">
 
-[Straw](https://ruek.straw.page)
+[Straw](https://asphyxixate.straw.page)
 [Carrd](https://asphyxixate.carrd.co/)
 [ATA](https://ashpyxixate.atabook.org/)
 
