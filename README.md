@@ -32,13 +32,3 @@
 </details>
 
 </div>
-
-<div align="center">
-
-<details>
-<summary>Don't post my shi on pinterest bro</summary>
-<img width="1697" height="1013" alt="Screenshot 2026-06-10 103513" src="https://github.com/user-attachments/assets/b1905087-9e89-4a50-b31f-b833db27b3c0" />
-I LIT JUST MADE THIS YESTERDAY BROOO
-</details>
-
-</div>
