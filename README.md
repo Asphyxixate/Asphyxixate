@@ -32,3 +32,20 @@
 </details>
 
 </div>
+<div align="center">
+
+<details>
+<summary>My art</summary>
+<img width="300" height="" alt="kaneki" src="https://github.com/user-attachments/assets/c962ec2d-9ab2-451a-be2d-21e76956050b" />
+<img width="300" height="" alt="tsukiyama" src="https://github.com/user-attachments/assets/7da478bb-3951-4a57-9802-e1659f52eaa8" />
+<img width="300" height="" alt="denji" src="https://github.com/user-attachments/assets/641f3094-cc2a-44da-8eda-43a8a5dfa0a6" />
+<img width="910" height="" alt="Screenshot 2026-06-07 020013" src="https://github.com/user-attachments/assets/b81650fd-2ef7-4654-bbd7-82024ae2e5e3" />
+<img width="300" height="" alt="Screenshot 2026-03-27 125246" src="https://github.com/user-attachments/assets/6d88d83f-0696-4401-b811-c22372057304" />
+<img width="300" height="" alt="Screenshot 2026-05-25 055406" src="https://github.com/user-attachments/assets/3b28355e-affa-40f7-9679-1498ad7f206a" />
+<img width="300" height="" alt="Illustration188" src="https://github.com/user-attachments/assets/71661a29-28fb-4a3e-97b5-953821d660e3" />
+
+
+
+</details>
+
+</div>
