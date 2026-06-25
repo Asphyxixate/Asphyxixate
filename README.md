@@ -12,7 +12,7 @@
 <div align="center">
 
 [Straw](https://asphyxixate.straw.page)
-[Carrd](https://asphyxixate.carrd.co/)
+[Carrd]()
 [ATA](https://ashpyxixate.atabook.org/)
 
 <div align="center">
