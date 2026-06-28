@@ -11,14 +11,12 @@
 
 <div align="center">
 
-<[Join my discord server.](https://discord.gg/DTpq57S9m)
-
 </div>
 
 <div align="center">
 
 [Straw](https://asphyxixate.straw.page)
-[Carrd]()
+[Join my dc serv.](https://discord.gg/DTpq57S9m)
 [ATA](https://ashpyxixate.atabook.org/)
 
 <div align="center">
