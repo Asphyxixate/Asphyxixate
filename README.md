@@ -16,7 +16,7 @@
 <div align="center">
 
 [Straw](https://asphyxixate.straw.page)
-[Join my dc serv.](https://discord.gg/DTpq57S9m)
+meow
 [ATA](https://ashpyxixate.atabook.org/)
 
 <div align="center">
