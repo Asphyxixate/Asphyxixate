@@ -15,7 +15,7 @@
 
 <div align="center">
 
-[Straw](https://asphyxixate.straw.page)
+[Rentry](https://rentry.co/Asphyxixate)
 meow
 [ATA](https://ashpyxixate.atabook.org/)
 
