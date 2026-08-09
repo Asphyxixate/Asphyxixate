@@ -17,7 +17,7 @@
 
 ㅤ
 
- 𓂃 ࣪˖ ִֶָ **Welcome to Anteiku**𓂃 ࣪˖ ִֶָ☕︎
+ 𓂃 ࣪˖ ִֶָ **Welcome to Anteiku**!𓂃 ࣪˖ ִֶָ
 
 
 Ken Kaneki Kin , ♡ [Ty Pt walk of fame (≧∇≦)](https://github.com/pt-walk-of-fame)  \
@@ -35,7 +35,7 @@ Adore my trio <img width="30" alt="aea89c9f65a53eeceee63c139a82759d" src="https:
  \
  \
  \
-☕ My Friends\
+ My Friends <img width="40" alt="Ken" src="https://github.com/user-attachments/assets/8f85f1f2-f10e-479d-8e29-5642c4db0390" />\
 [Nia](https://github.com/burningsins) , [Aush](https://github.com/s6toru) , [Soomi](https://github.com/soomiboo) , [Banana](https://github.com/TheBanana6612) , [Minho](https://github.com/AnhaaLyz) , [Zenny](https://github.com/witheringrosez) + Others 
 
 
