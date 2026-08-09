@@ -49,7 +49,7 @@ Adore my trio <img width="30" alt="aea89c9f65a53eeceee63c139a82759d" src="https:
 </div>
 <div align="center">
 
-<img width="250" alt="Rentry2" src="https://github.com/user-attachments/assets/f1ecc2ae-c88f-4533-8dd7-80d4e2874896" /> <img width="250" alt="Directory" src="https://github.com/user-attachments/assets/cef4443c-66c4-4d67-9469-7b769133576b" /> <img width="250" alt="Atabook" src="https://github.com/user-attachments/assets/24b142fa-290b-4907-a776-279d1e7a7647" /> <img width="100" alt="Ken" src="https://github.com/user-attachments/assets/cadc7143-4a5d-46a8-9875-9315626d626f" />
+<img width="250" alt="Rentry2" src="https://github.com/user-attachments/assets/f1ecc2ae-c88f-4533-8dd7-80d4e2874896" /> <img width="250" alt="Directory" src="https://github.com/user-attachments/assets/cef4443c-66c4-4d67-9469-7b769133576b" /> <img width="250" alt="Atabook" src="https://github.com/user-attachments/assets/24b142fa-290b-4907-a776-279d1e7a7647" />
 
 
 </div>
