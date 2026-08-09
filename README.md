@@ -8,11 +8,11 @@
 
 <img align="left" width="410" src="https://github.com/user-attachments/assets/3ecdae55-0d50-42e8-a437-39b90f979381">
 
-<img align="center" width="210" alt="Illustration 20260808" src="https://github.com/user-attachments/assets/8bdae64d-ba2d-4886-b737-b1b97ce30166" />
+<img align="center" width="280" alt="Illustration 20260808" src="https://github.com/user-attachments/assets/8bdae64d-ba2d-4886-b737-b1b97ce30166" />
 
 
  
-**he / him** ㅤ✦ㅤ **INTJ** ㅤ✦ㅤ **3w4**
+<sup>**he / him** ㅤ✦ㅤ **INTJ** ㅤ✦ㅤ **3w4**</sup>
 
 
 ㅤ
