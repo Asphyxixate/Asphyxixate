@@ -17,7 +17,7 @@
 
 ㅤ
 
- 𓂃 ࣪˖ ִֶָ **Welcome to Anteiku**!𓂃 ࣪˖ ִֶָ
+ 𓂃 ࣪˖ ִֶָ𐙚**Welcome to Anteiku**!𓂃 ࣪ ִֶָ ˖
 
 
 Ken Kaneki Kin , ♡ [Ty Pt walk of fame (≧∇≦)](https://github.com/pt-walk-of-fame)  \
