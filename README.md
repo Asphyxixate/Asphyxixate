@@ -49,7 +49,7 @@ My Friends <img width="40" alt="Ken" src="https://github.com/user-attachments/as
 </div>
 <div align="center">
 
-<img width="250" alt="Rentry2" src="https://github.com/user-attachments/assets/f1ecc2ae-c88f-4533-8dd7-80d4e2874896" /> <a href="https://https://rentry.co/Asphyxixate"> <img width="250" alt="Directory" src="https://github.com/user-attachments/assets/cef4443c-66c4-4d67-9469-7b769133576b"/> </a> <a href="https://ashpyxixate.atabook.org/"> <img src="https://github.com/user-attachments/assets/24b142fa-290b-4907-a776-279d1e7a7647" Width="250"> </a>
+<img width="250" alt="Rentry2" src="https://github.com/user-attachments/assets/f1ecc2ae-c88f-4533-8dd7-80d4e2874896" /> <a href="https://rentry.co/Asphyxixate"> <img width="250" alt="Directory" src="https://github.com/user-attachments/assets/cef4443c-66c4-4d67-9469-7b769133576b"/> </a> <a href="https://ashpyxixate.atabook.org/"> <img src="https://github.com/user-attachments/assets/24b142fa-290b-4907-a776-279d1e7a7647" Width="250"> </a>
 
 </div>
 <img width="1080" alt="image" src="https://github.com/user-attachments/assets/43a5d065-e2de-4d51-a402-82a68c9bfe0e" />
